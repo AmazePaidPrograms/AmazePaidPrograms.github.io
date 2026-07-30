@@ -1,1 +1,1 @@
-# AmazePaidPrograms.com
+# AmazePaidPrograms.github.io
